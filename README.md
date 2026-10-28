@@ -1,0 +1,1 @@
+# mn-slovicka-k7x2
